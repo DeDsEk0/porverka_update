@@ -1,1 +1,0 @@
-# porverka_update
